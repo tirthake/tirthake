@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning language 
 - 🌱 I’m currently learning  c
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... tirthake@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im extro-introvert
 
